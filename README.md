@@ -33,7 +33,8 @@
 ## 🔗 Connect With Me
 
 * GitHub: [@puneetgauatam1615](https://github.com/puneetgauatam1615)
-* 📸 Instagram: [@puneetgautam1615](https://www.instagram.com/puneet_gautam_9_/)
+*  <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/e7c8e086-f36f-47c4-8f87-69290e269f08" />
+  Instagram: [@puneetgautam1615](https://www.instagram.com/puneet_gautam_9_/)
 * Ⓜ️ E-mail :  [@puneetgautam1615](https://mail.google.com/mail/u/0/#inbox)
 
 
